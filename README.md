@@ -1,10 +1,10 @@
-Hi there 👋 I'm MERT KÖSE
+Hi Everyone 👋 I'm MERT KÖSE
 
-🏫 KONYA TECHINICAL UNIVERSITY
+🏫 KONYA TECHINICAL UNIVERSITY 2th Grade
 
 🫡 My principle is Turkish, use your mind, work, trust.
 
-👀 I'm new here.
+📈I am improving myself about DevOps Engineering!!!
 
 🏀 I'm a professıonal player in the Konya Techınıcal Unıversıty.
 
