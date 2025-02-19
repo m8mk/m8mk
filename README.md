@@ -1,6 +1,6 @@
 Hi Everyone 👋 I'm MERT KÖSE
 
-🏫 KONYA TECHINICAL UNIVERSITY 2th Grade
+🏫 KONYA TECHINICAL UNIVERSITY 3th Grade
 
 🫡 My principle is Turkish, use your mind, work, trust.
 
